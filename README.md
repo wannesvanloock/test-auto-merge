@@ -1,1 +1,1 @@
-# test-auto-merge
+# We wish you a merry christmas!
